@@ -1,0 +1,2 @@
+# jsd-wvnj22-team-renpy
+JSD: WINTER VISUAL NOVEL JAM 22 - TEAM REN'PY - NAME TBD
